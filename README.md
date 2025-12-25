@@ -1,0 +1,2 @@
+# mirziyoniki
+Ustoz uchun
